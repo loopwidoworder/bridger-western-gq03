@@ -1,4 +1,4 @@
-#  
+#  stealth Script for brainrot evolution offers the most advanced brainrot evolution Script, with auto-collect and silent aim. Perfect for dominating
 
 
 
